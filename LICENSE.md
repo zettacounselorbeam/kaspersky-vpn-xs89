@@ -1,4 +1,4 @@
-
+Kaspersky VPN top Client: server-switching & obfuscation offers the most advanced Kaspersky VPN client, with server-switching and obfuscation. Ideal for users who value privacy
 
 
 
